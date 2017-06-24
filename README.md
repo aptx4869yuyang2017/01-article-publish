@@ -18,4 +18,4 @@
 
 [第2周笔记 新媒体故事结构入门01: 故事结构导论、3P工作流之人物](https://mp.weixin.qq.com/s?__biz=MzI3OTI3ODUzMw==&mid=2247483691&idx=1&sn=49ec643df5517d13acb3ed4a918389a9&chksm=eb4b6781dc3cee9713d3ca99f73cbf09e1c06a40e008b7d22792b611e030ff5ca414a1ca3cab#rd)
 
-[第2周笔记 新媒体故事结构入门02：3P工作流之目的 情节](https://mp.weixin.qq.com/s?__biz=MzI3OTI3ODUzMw==&tempkey=OErs45hr%2FBWEF755QME08wOLPDGtV1QBcRC8%2BTxaz049a1WOHMGOofwIxZq31eD40czuRdVHIngdKcocfJ0DphbcsCYZRnVMwCFZI6D%2B7rMgBCYK9PbbFvgx4Mleu87TUq%2FAZm5KBOWo%2FZmBkeCQ2A%3D%3D&chksm=6b4b67935c3cee859e5e4f026626bddf58c4f115a00152a4d38540b28a724472fc0cc21da2c0#rd)
+[第2周笔记 新媒体故事结构入门02：3P工作流之目的 情节](https://mp.weixin.qq.com/s?__biz=MzI3OTI3ODUzMw==&mid=2247483706&idx=1&sn=c8f212476747fac12fe956ad790670eb&chksm=eb4b6790dc3cee869cafc7fc5f087eb394ae4feb0b980c5588b39ad732f1dcb3f4d193b47620#rd)
